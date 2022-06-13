@@ -1,1 +1,1 @@
-# luck-you.me
+# luck@you.me
